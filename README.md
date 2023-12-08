@@ -1,3 +1,3 @@
-![Video Thumbnail](https://img.youtube.com/vi/DiKV1qkVZmw/maxresdefault.jpg)
+![Video Thumbnail](https://img.youtube.com/vi/aFkU3AcwyKE/maxresdefault.jpg)
 
-[Video tutorial](https://youtu.be/DiKV1qkVZmw)
+[Video tutorial](https://youtu.be/aFkU3AcwyKE)
